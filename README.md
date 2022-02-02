@@ -2,7 +2,7 @@
 - I’m mostly interested in python 
 - I’m currently learning python (still a beginner)
 - I’m looking to collaborate on idk..?
-- reach me at email me at emailmenstuff@gmail.com
+- email me at emailmenstuff@gmail.com
 
 so.... yeah thats all
 
